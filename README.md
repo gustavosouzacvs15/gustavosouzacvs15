@@ -79,7 +79,7 @@ Meu objetivo é trabalhar em uma equipe de desenvolvimento, aprender com profiss
 
 ## 📫 Contato
 
-📧 **E-mail:** [gustavo.souza.dev@gmail.com]
+📧 **E-mail:** [gustavo.souza.dev2026@gmail.com]
 💼 **LinkedIn:** [https://www.linkedin.com/](https://www.linkedin.com/in/gustavo-silva-dev2026/)
 
 ---
